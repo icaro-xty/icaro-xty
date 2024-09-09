@@ -10,6 +10,8 @@ Meu nome é Icaro Milanello
 
 
 ![](https://media1.tenor.com/m/pXbU7RAcQ4MAAAAd/kawaii-kanye-west.gif)
+![](https://media1.tenor.com/m/LuWrjjRBpBQAAAAC/ernie-weed.gif)
+
 
 
 
