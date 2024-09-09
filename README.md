@@ -1,16 +1,16 @@
-## Hi there 👋
+# Boas vindas ao meu perfil 🔥🔥🔥
 
-<!--
-**icaro-xty/icaro-xty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Meu nome é Icaro Milanello
+- Eu estudo na E.E José Ometto 
+- Estou me formando no encino médio
+- Jogo vários jogos online
+- Toco guitarra e cavaquinho
+
+
+![](https://media1.tenor.com/m/pXbU7RAcQ4MAAAAd/kawaii-kanye-west.gif)
+
+
+
+
